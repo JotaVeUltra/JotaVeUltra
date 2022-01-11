@@ -4,4 +4,4 @@
 Follow me on twitter [@JoaoMarq](https://twitter.com/JoaoMarq).
 
 ### Website
-[joaomarq.work](https://joaomarq.work)
+[joaomarq.work](https://www.joaomarq.work)
